@@ -15,9 +15,9 @@
 
   𝖨 𝖠𝖬 𝖵𝖤𝖱𝖸 𝖧𝖠𝖯𝖯𝖸 𝖳𝖮 𝖡𝖤 𝖥𝖱𝖨𝖤𝖭𝖣𝖲 𝖶𝖨𝖳𝖧 𝖲𝖮𝖬𝖤𝖮𝖭𝖤 𝖡𝖱𝖡𝖱𝖡𝖡𝖪 𝖲𝖮 𝖣𝖮𝖭'𝖳 𝖧𝖤𝖲𝖨𝖳𝖠𝖳𝖤, 𝖨'𝖬 𝖶𝖨𝖫𝖫𝖨𝖭𝖦 𝖳𝖮 𝖧𝖤𝖫𝖯 ( 𝗍𝗁𝖾 𝗈𝗇𝖾 𝗐𝗁𝗈 𝗌𝗁𝗒 & 𝗌𝖼𝖺𝗋𝖾𝖽 𝗂𝗌 𝗆𝖾 𝖺𝖼𝗍𝗅 ) 
 
-  <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/7fee0c83-ece8-45b7-baa5-9e9cfd9369df" />
+  <img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/f5184099-39e6-4904-afed-5636781530b7" />
 
   ︴˚〰︎˚ ˙ ∘ • ⊹ ____________________________________________ꔛꔛ____________________________________________ ⊹ • ∘ ˚ ˚〰︎˚ ︴
+<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/7fee0c83-ece8-45b7-baa5-9e9cfd9369df" />
 
-<img width="2048" height="2048" alt="Image" src="https://github.com/user-attachments/assets/f5184099-39e6-4904-afed-5636781530b7" />
 </p>
