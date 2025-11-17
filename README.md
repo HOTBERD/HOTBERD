@@ -3,7 +3,6 @@
 
  ![Image](https://github.com/user-attachments/assets/3355b4d0-7eb5-4946-ad0d-6c4178b38941)
  ![Image](https://github.com/user-attachments/assets/3355b4d0-7eb5-4946-ad0d-6c4178b38941)
- ![Image](https://github.com/user-attachments/assets/3355b4d0-7eb5-4946-ad0d-6c4178b38941)
  
   • 𝘯𝘰𝘵𝘩𝘪𝘯𝘨 𝘩𝘦𝘳𝘦 𝘮𝘶𝘤𝘩, 𝘑𝘶𝘴𝘵 𝘢 𝘣𝘳𝘪𝘦𝘧 𝘰𝘷𝘦𝘳𝘷𝘪𝘦𝘸. •
   
@@ -25,7 +24,6 @@
 
   𝖨 𝖠𝖬 𝖵𝖤𝖱𝖸 𝖧𝖠𝖯𝖯𝖸 𝖳𝖮 𝖡𝖤 𝖥𝖱𝖨𝖤𝖭𝖣𝖲 𝖶𝖨𝖳𝖧 𝖲𝖮𝖬𝖤𝖮𝖭𝖤 𝖡𝖱𝖡𝖱𝖡𝖡𝖪 𝖲𝖮 𝖣𝖮𝖭'𝖳 𝖧𝖤𝖲𝖨𝖳𝖠𝖳𝖤, 𝖨'𝖬 𝖶𝖨𝖫𝖫𝖨𝖭𝖦 𝖳𝖮 𝖧𝖤𝖫𝖯 ( 𝗍𝗁𝖾 𝗈𝗇𝖾 𝗐𝗁𝗈 𝗌𝗁𝗒 & 𝗌𝖼𝖺𝗋𝖾𝖽 𝗂𝗌 𝗆𝖾 𝖺𝖼𝗍𝗅 ) 
   
-  ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
   ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
   ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
   
