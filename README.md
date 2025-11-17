@@ -11,9 +11,11 @@
 
   * I share my gmail and game account to my dear friends,so sometimes I will be in my friends game account too
 
-  * Afk/in menu often ( or draw, surf the web, play rhyme hive, sonolus )
+  * Afk/in menu often ( or draw, surf the web, play rh, sonolus , Roblox ,..)
 
   * I only use Whisp when talking and chatting with my group of friends in a party
+
+  * I only follow people with nice skin 🥹
 
   • 𝖬𝗒 𝗌𝗍𝗒𝗅𝖾 𝗂𝗌 𝗌𝗈𝗆𝖾𝗍𝗁𝗂𝗇𝗀 𝖨 𝗅𝖾𝖺𝗋𝗇𝖾𝖽 𝗈𝗇 𝗆𝗒 𝗈𝗐𝗇 𝗋𝖾𝗀𝖺𝗋𝖽𝗂𝗇𝗀 𝖼𝗈𝗅𝗈𝗋 𝗉𝖺𝗅𝖾𝗍𝗍𝖾𝗌, 𝖺𝗇𝖽 𝖨 𝗍𝖺𝗄𝖾 𝗂𝗍 𝖿𝗋𝗈𝗆 𝗆𝗒 𝗉𝖺𝗂𝗇𝗍𝗂𝗇𝗀𝗌 •
 
