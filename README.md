@@ -1,7 +1,5 @@
 <p align="center">
 
- ![Image](https://github.com/user-attachments/assets/70c4be4f-22bc-4e06-8080-e241b0f9823e)
- ![Image](https://github.com/user-attachments/assets/90a7db58-b10c-4abc-85b6-dc26ae1d8d2a)
  
 ☻☺︎ 𝘏𝘪 𝘵𝘩𝘦𝘳𝘦! 𝘸𝘦𝘭𝘤𝘰𝘮𝘦 . ☺︎☻
 
