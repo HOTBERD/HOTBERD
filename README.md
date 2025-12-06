@@ -17,6 +17,8 @@
   •Go to Facebook link to see more information about me.
   
   • DNC/get ref my pony skin without permission.
+
+  • I am very bad at communication, I don't even have words to say.
   
   • I often give my gmail game account to my friends, that's why I'm in their account sometimes .
   
