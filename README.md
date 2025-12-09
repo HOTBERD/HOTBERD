@@ -25,11 +25,7 @@
  
   
   
-  ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
-  ![Image](https://github.com/user-attachments/assets/c9776069-a4af-46ff-969c-af1daec196ea)
   
-
-  <img width="1552" height="1014" alt="Image" src="https://github.com/user-attachments/assets/48eab28f-1855-44ad-9b7f-2821b5e444d0" />
 
   ︴˚〰︎˚ ˙ ∘ • ⊹ ____________________________________________ꔛꔛ____________________________________________ ⊹ • ∘ ˚ ˚〰︎˚ ︴
 
